@@ -7,9 +7,9 @@ Avec Lightly style d'applications et Rounded Rectangle icônes
 
 With Lightly Application style and Rounded Rectangle icons
 
-Aussi deux photos de Revontuli = Feu de renard (en finnois, en la lanque suomi), ou Lumiere de Nord ou Aurora Borealis photographié a Ranua Suomi (qui est connu comme Finlande à l'étranger). Jari Romppainen https://www.instagram.com/jarcce/ détient le droits d'auteur des photos.
+Aussi deux photos de Revontuli = Feu de renard (en finnois, en la lanque suomi), ou Lumiere de Nord ou Aurora Borealis photographié a janvier 2022 a Ranua Suomi (qui est connu comme Finlande à l'étranger). Jari Romppainen https://www.instagram.com/jarcce/ détient le droits d'auteur des photos.
 
-Also included two photos of Revontuli = Fire of The Fox (in finnish, in suomi language), or Northern Lights or Aurora Borealis photographed at Ranua Suomi (known as Finland abroad). Jari Romppainen https://www.instagram.com/jarcce/ owns copyrights of these photos.
+Also included two photos of Revontuli = Fire of The Fox (in finnish, in suomi language), or Northern Lights or Aurora Borealis photographed at January 2022 at Ranua Suomi (known as Finland abroad). Jari Romppainen https://www.instagram.com/jarcce/ owns copyrights of these photos.
 
 ![Screenshot_20220213_201011](https://user-images.githubusercontent.com/73434605/153768653-3a449b2c-394f-4f08-8de0-ea31b4501a0a.png)
 
